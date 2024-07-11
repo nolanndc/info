@@ -1,1 +1,1 @@
-# info
+# info-circulation-manga
